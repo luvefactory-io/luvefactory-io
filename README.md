@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @luvefactory-io
+- 👋 Hi, I’m Sam
 - 👀 I’m interested in Nfts.
 - 🌱 I’m currently learning life.
 - 💞️ I’m looking to collaborate on metaverse projects.
